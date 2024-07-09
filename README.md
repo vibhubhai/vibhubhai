@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **Vibhukashyap331@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/103s6gyGAzEBi8KE2SyoujyUQ9xDZi5CH/view?usp=sharing](https://drive.google.com/file/d/103s6gyGAzEBi8KE2SyoujyUQ9xDZi5CH/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/103s6gyGAzEBi8KE2SyoujyUQ9xDZi5CH/view?usp=sharing]
 
 - ⚡ Fun fact **I am Dancer**
 
